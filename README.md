@@ -32,9 +32,10 @@ Majority of buyers are aged 26-35 years, with females leading.
 This is a prime working-age group, likely with:
 - Discretionary income.
 - Interest in family-oriented and lifestyle products.
-- Suggests a focus on modern, professional, and convenience-driven products.
 
-_**This demographic analysis highlights the objects or traits such as female majority buyers, family-focused purchases, professional occupations, and modern lifestyle preferences as key factors for business strategies and product offerings.*_*
+Suggests a focus on modern, professional, and convenience-driven products.
+
+_This demographic analysis highlights the objects or traits such as female majority buyers, family-focused purchases, professional occupations, and modern lifestyle preferences as key factors for business strategies and product offerings._
 
 
 
